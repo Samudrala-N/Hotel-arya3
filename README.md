@@ -1,0 +1,1 @@
+hotel.arya2
